@@ -19,8 +19,8 @@ Logistics & supply chain · pharma cold chain · IoT & geofencing · agentic dev
 
 ### 📫 Find me
 
-[LinkedIn](https://www.linkedin.com/in/hans-boese/) · boesehans83@gmail.com · Bangkok 🇹🇭
+🌐 [bad-media.de](https://www.bad-media.de/) · [LinkedIn](https://www.linkedin.com/in/hans-boese/) · boesehans83@gmail.com · Bangkok 🇹🇭
 
 ---
 
-⚠️ *Whatever you do — do **not** press the red button on my website.*
+⚠️ *Whatever you do — do **not** press [the red button on my website](https://www.bad-media.de/).*
